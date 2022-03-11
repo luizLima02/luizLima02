@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @luizLima02
-- 👀 I’m interested in Game and App development.
+- 👀 I’m interested in Game, App development and Web development.
 - 🌱 I’m currently in college
 - 📫 How to reach me DM me in insta "@netto_luiz27"
 
